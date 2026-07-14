@@ -5,6 +5,8 @@
 <sub> $\color{#657c86}{\textsf{mentally unwell 15-year-old who can't socialise anymore}}$
 $\color{#657c86}{\textsf{meowmeow meo mrow mewヾ(๑╹◡╹)ﾉ🔪≽(•ω •マ≼}}$
 
+<sub> $\color{#657c86}{\textsf{C+H always encouraged and whisp 2 interact (always afk)!}}$
+
 <p align="center"><sub><a href="https://mentally-unwell.straw.page/">strawpage</a></p>
 <p align="center"><sub><a href="https://serpula-lacrymans.atabook.org/">atabook</a></p>
 <p align="center"><sub><a href="https://guns.lol/mentally_ill">socials</a></p>
