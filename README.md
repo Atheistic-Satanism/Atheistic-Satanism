@@ -8,7 +8,7 @@
 ### Before You Interact/Friend
 <sub>I'm a 15 y/o mentally unwell grill, I like drawing and uhh stuff.. C+H is ALWAYS encouraged and whisp to interacg bcus im almost alwaus afk. I am friendly, unresponsive (kinda), and a bit dry/awkward at first—if i wasnt like this (ex. vry energetic, hostile idk), then idk look at my github user. ok, as we get closer i become clingy, childish, and a bit selfcentered (working on ts, b patient). my jokes are cringy and consists of insults, death threats, etcetc., if ure uncomfy/want me to bck off pls lemme know! i dont have a DNI list, i block freelyy lalalala.
 
-<sub>xtra: i dont use IWC/DNI in my name bcus (っ´ω`ｃ)(　＾Д＾)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽
+<sub>xtra: i dont use IWC/DNI in my name bcus (っ´ω`ｃ)(　＾Д＾)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽｀)(´▽ //// even if i get comfy, im still gona b unresponsive.. ill try my bst to think of a response tho(゜∇^d)!!
 
 ### Hyperfixations!! (+fave contnt creators)
 <sub> BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti whatever, dont waste ur time to argue—im fully aware of wht im doing lal), TINR and Facility (comics by Gatobob), learning abt psychology/mental health (gimme un/popular facts and PLS add what ur sources!! dont spread misinformation or disinformation)
