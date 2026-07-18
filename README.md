@@ -3,7 +3,7 @@
 [![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled413_20260718211531.png)](https://www.youtube.com/watch?v=0GVExpdmoDs)
 
 <details>
-  <summary> <p align="center"> $\color{#657c86}{\textsf{Click for Phil/Sano's intro!}}$ </summary>
+  <summary> <p align="center"> $\color{#B30000}{\textsf{Click for Phil/Sano's intro!}}$ </summary>
 
 ### Before You Interact/Friend
 <sub>I'm a 15 y/o mentally unwell grill, I like drawing and uhh stuff.. C+H is ALWAYS encouraged and whisp to interacg bcus im almost alwaus afk. I am friendly, unresponsive (kinda), and a bit dry/awkward at first—if i wasnt like this (ex. vry energetic, hostile idk), then idk look at my github user.. no im not gonna bother using IWC/DNI in my name lmao. ok, as we get closer i become clingy, childish, and a bit selfcentered (working on ts, b patient). my jokes are cringy and consists of insults, death threats, etcetc., if ure uncomfy/want me to bck off pls lemme know! i dont have a DNI list, i block freelyy lalalala.
