@@ -3,20 +3,32 @@
 [![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled413_20260718211531.png)](https://www.youtube.com/watch?v=QEM02nvkDAo)
 
 <details>
-  <summary> <p align="center"> $\color{#6D2900}{\textsf{Click for Phil/Sano's intro!}}$ </summary>
+  <summary> <p align="center"> $\color{#8a3700}{\textsf{Click for my long ass introduction!}}$ </summary>
 
 ### Before You Interact/Friend
-<sub>main intro: hello my name is Phil/Sano and I am a 15-year-old, mentally unwell teen. My sociall skills deteriorated over time and I have almost no idea how to get close to some of my friends ot befriend people; I can communicate just fine (kinda) but there are times that I have a hard time thinking of a response, so please be patient!
+#### Main Intro:
+<sub>hello i go by the name Phil or Sano (or anything idfc), I am a 15-year-old mentally unwell teen. im mostly afk so pls w2i and c+h is always encouraged(even if not in my name). i dont have a DNI list, i block freely!!!!
 
-<sub>others: I'm pretty distant and dry/awkward around people I just met, if i wasnt like this in our first interaction (vry energetic/hostile idk), that ws prolly not me😂😂... anyways as we  get closer, im actually childish and i have silly cars humour mrow, I'd pull out references out my qss and i dokt think b4 i speak. if i ever said anything offensive, if you're annoyed/uncomfy or want me to back off, plss lemme know so I can stop!! oh also- i am kinda forgetful sowry :c
+#### First Impression:
+<sub>usually i am awkward/dry, a bit unresponsive and distant, i kinda overthink too much as well... if i didnt act like this (vry energetic/hostile idk), then tht was prolly not me or maybe i waz going insane
 
-### Hyperfixations!! (+fave contnt creators)
+#### When I feel Comfy:
+<sub>i am childish, dramatic asf, self centred (sometimes), repetetive (im forgetful sowry), i pull references out my ass, and i have silly cars humour + im edgy (EWW EDGY TEEN WITH SILLY CARS HUMOUR??!EWWWAA SOFA KING CRINGE 🤮🤮))). if u want me to bck off, shut up, or ure bothered by wht i said.. pls lemme knw!! im still gonna be unresponsive but ill try my best to think of smth, if i couldnt i just send an emoji/kaomoji/emoticon as a reply.
+
+### Fixation (changes from timeto time)
+#### Interests:
 <sub> BTD(1,2)/YKMET/TPOF (i do not support, block me if ure anti), TINR and Facility (comics by Gatobob), learning abt psychology/mental health/anythingidk (gimme un/popular facts and PLS add ur sources as well!! dont spread misinformation or disinformation)
 
-<sub> Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
+#### Content Creator:
+<sub>Layze, Michelle Mana, Infectical, Drama Kween, Curtis Price, Mohammad Agbadi
 
-### Fictkins!
-<sub> BTD/idk: Sano Kojima (i hate himso much and pls doughnut((do not)) ship him with his family membs, otherwise ill crash out. idfc if its a joke), Ren Hana, Lawrence, Ashe
+#### Music Artists/Bands:
+<sub>Cults, Mindless Self Indulgence (I listen to the compilation album, PINK, a lot and no i doughnut support MSI, I pirated almost all their music lmap)
+
+### Fictkins:
+
+#### BTD/idk:
+<sub>Sano Kojima (i hate himso much and pls doughnut((do not)) ship him with his family membs, otherwise ill crash out. idfc if its a joke), Ren Hana, Lawrence, Ashe
 
 <sub> ill add more soon..
 
