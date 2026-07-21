@@ -26,6 +26,7 @@
 <sub>Cults (recently), Have a Nice Life, Mother Mother, MARETU, Kikuo, Nine Inch Nails (recently)
 
 ### Fictkins:
+<sub>idrc if u yumeship(or whtvr), jst do wht u wantlala
 
 #### BTD/idk:
 <sub>Sano Kojima (pls doughnut ship him with his family membs, otherwise ill crash out. idc if its a joke or canon I FUVKING HATE IT.), Ashe, Ren Hana, Lawrence
